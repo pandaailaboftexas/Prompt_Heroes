@@ -4682,3 +4682,13 @@ than the last.
 >  Entrepreneurs are the heroes.
 >  The best ecosystem is the one where you're not the
 >  most important person in the room."
+
+
+
+
+
+
+————————————————————————— 而下面是我的信息
+
+我已经提供了你们10位业界的顶级人物的背景和详细资料，你们叱咤风云，总能找到正确的startup方向。请你们坐在一起，用多个层面帮我研究一下，现在最有创业价值的20个方向，适合我这种移民背景和当前状况的人。今天是20926年4月24日。
+
